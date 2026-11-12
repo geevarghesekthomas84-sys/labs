@@ -1,3 +1,3 @@
 # labs
 
-# coming soon
+# coming soon ..
